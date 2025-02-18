@@ -1,0 +1,1 @@
+# Comparacion-Athlon-y-el-Pentium
